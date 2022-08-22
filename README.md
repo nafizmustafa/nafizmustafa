@@ -16,6 +16,8 @@
 
 - 📫 How to reach me **nafizmustafa361@gmail.com**
 
+- 📫 LinkedIn **https://www.linkedin.com/in/nfzmustafa**
+
 - ⚡ Fun fact **I play games and go to the GYM very often.**
 
 ## 🚀 Languages and Tools:
